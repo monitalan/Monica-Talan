@@ -22,7 +22,7 @@ At [CryptoConexión](https://cryptoconexion.com), I build Spanish-language educa
 
 At [CommsCollectiv](https://commscollectiv.com), I lead fractional communications strategy for founders and executives navigating AI and Web3. This includes the AIRCOM Framework, a risk management tool built specifically for communications leaders integrating AI into their organizations.
 
-I am also an active contributor to [Billions Network](https://signup.billions.network), supporting ecosystem growth, ambassador programs, and community education across Latin America.
+I am also an active contributor to [Billions Network](https://signup.billions.network), supporting ecosystem growth, ambassador programs, and community education globally.
 
 ---
 
